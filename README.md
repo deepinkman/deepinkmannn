@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/sqtnrb.webp" title="　𓊆Gif Made By @deepinkman ' Do Not Repost W/O Permission𓊇　" width="450" height="360" >
+<img src="https://files.catbox.moe/sqtnrb.webp" title="　𓊆Gif Made By @deepinkman ' Do Not Repost or Take Inspo W/O Permission𓊇　" width="450" height="360" >
 
 <sub>[__strawpage__](https://ikeaboy.straw.page)　⋮　[__atabook__](https://deepinkman.atabook.org)　⋮　[__guns.lol__](https://guns.lol/deepinkman)
 
